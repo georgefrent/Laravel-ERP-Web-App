@@ -1,0 +1,3 @@
+# Politica de confidențialitate
+
+Politica de confidențialitate...
